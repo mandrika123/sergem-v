@@ -69,3 +69,7 @@
 
   </body>
 </html>
+![kill yasha](https://user-images.githubusercontent.com/106743516/171628905-09df4e82-b298-422f-87fe-5662a7e785fb.jpg)
+![YASHA KILL 2](https://user-images.githubusercontent.com/106743516/171628909-e06bc028-b265-4aa4-acf8-424a09863506.jpg)
+![yasha profile](https://user-images.githubusercontent.com/106743516/171628912-4766d651-3736-4647-a4c5-165423f3b662.jpg)
+![yashka photos](https://user-images.githubusercontent.com/106743516/171628914-62774295-bb79-4e59-8348-245430a04069.jpg)
